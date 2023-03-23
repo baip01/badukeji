@@ -1,4 +1,4 @@
-8度科技又名八度科技，知名电报名人，同时还有网站，APP,油管等资源，现列出部分资源。
+8度科技又名八度科技，电报知名名人，技术很烂，得得益于群友帮助，拥有网站，APP,油管等资源，现列出部分资源。
 
 8度科技油管频道：https://www.youtube.com/@badukeji
 
@@ -12,4 +12,10 @@
 
 部分万人电报频道：https://t.me/pjrjzy https://t.me/mfjdpd https://t.me/bdpd8
 
-APP:软件库 8度加速器 网页转APP
+APP:软件库 八度加速器 网页转APP
+
+节点分享：https://ruanjianku.cloud/category/jiedian/
+
+永久订阅：https://ruanjianku.cloud/yongjiu/
+
+永久的订阅链接，每天更新节点。
