@@ -4,5 +4,5 @@
 软件分享社：https://rjfxs.com
 机场VPN测评：https://jichangvpn.cloud/
 电报群：https://t.me/abc999222
-万人电报频道5个：https://t.me/pjrjzy https://t.me/mfjdpd https://t.me/bdpd8
+万人电报频道：https://t.me/pjrjzy https://t.me/mfjdpd https://t.me/bdpd8
 APP:软件库 网页转APP
